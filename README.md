@@ -10,3 +10,4 @@ Dr.house Dean of the hospital and danish Sait's sister looks the same.
 https://gfycat.com/backfragrantafricanaugurbuzzard-neuronal-cells-stem-cell && https://www.youtube.com/watch?v=X-iSQQgOd1A&t=10s are same 
 https://user-images.githubusercontent.com/6542274/119770291-9ad89d00-bed9-11eb-8c59-1ae53463d69b.mp4
 
+lightening and glass break are the same https://m.youtube.com/watch?v=qOAEOJ-NZew
